@@ -1,1 +1,1 @@
-Hello! I wish to be a hotdog.
+Hello! I wish to be a hotdog. However, being a sandwich has it's perks.
